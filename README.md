@@ -1,0 +1,1 @@
+# auzziemod-iw4-waypoints
